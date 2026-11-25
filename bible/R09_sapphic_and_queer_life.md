@@ -142,7 +142,7 @@ Rocalban:
 | **Almagra** (→ I32) | Tolerated in silence; convents famous for *amistades particulares* ("particular friendships") | The **pecado nefando**, the Unspeakable Sin: the Santo Crisol burns men for it, and the court is full of it |
 | **Ormánd** (→ I33) | Harvest-dance brides who "choose a sister" | Hussar sworn-brothers; officially nothing, really everything |
 | **Kesrân** (→ I34) | The **Andarun**, the women's palace, where friendships between concubines are poems of their own | A great literature of the beloved; **zenne** dancers; legally shady and socially everywhere |
-| **Vellora** (→ I35) | Courtesans' circles; the "**Compagnie della Calza**" clubs of noble ladies | The **Night Wardens** prosecute men; courtesans dress as boys to attract them |
+| **Vellora** (→ I35) | Courtesans' circles; the **Compagnie del Ventaglio**, the fan-companies of young patrician women | The **Night Wardens** prosecute men; courtesans dress as boys to attract them |
 | **The Sworn Valleys** (→ I36) | The Sennerinnen's summers | Clear Church condemnation, jokes about shepherds |
 | **Asagiri** (→ I37) | Court women's love for each other written openly in poetry | Warriors' bonds between adult comrades, long honored in their histories |
 
