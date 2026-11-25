@@ -33,7 +33,7 @@
 - **Mourning** suspends the Ordnung's colors (→ I18).
 
 ### The Kleidervisitatoren
-The **dress-inspectors**, eight officers of the Rumorwache with a book of the Ordnung. They walk the Graben, the Kohlmarkt and the church doors on Sundays and fine those who dress above their Stand, from **one to ten Greif**. They are bribed more than any officers in the city. A Bürger wife can wear silk on the Graben for a Bräutling a month paid to the right Visitator. They were the Chastity Commission's most enthusiastic allies, and became its most effective enemies when the fines stopped going into their own pockets (→ I77, I20).
+The **dress-inspectors**, eight officers of the Rumorwache with a book of the Ordnung. They walk the Graben, the Spiegelmarkt and the church doors on Sundays and fine those who dress above their Stand, from **one to ten Greif**. They are bribed more than any officers in the city. A Bürger wife can wear silk on the Graben for a Bräutling a month paid to the right Visitator. They were the Chastity Commission's most enthusiastic allies, and became its most effective enemies when the fines stopped going into their own pockets (→ I77, I20).
 
 ---
 
