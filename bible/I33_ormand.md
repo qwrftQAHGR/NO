@@ -16,7 +16,7 @@
 - **The east**: forested hills, Clear Church towns, and rebels (§8).
 - **The south**: lately reconquered from Kesrân (§2), full of ruins, Kesrâni baths, converted Lamp-houses and mixed villages.
 
-**Székvár** (seat-castle), the capital, is a castle-hill above the Selde with a royal palace, cathedral and the magnates' houses, and a lower town on the flat bank with markets and the famous **hot baths** (§6). It has about 40,000 people. Kesrâni minarets stand among its church towers, being converted one at a time.
+**Székvár** (seat-castle), the capital, is a castle-hill above the Selde with a royal palace, cathedral and the magnates' houses, and a lower town on the flat bank with markets and the famous **hot baths** (§6). It has about 40,000 people. Kesrâni lamp-towers stand among its church towers, being converted one at a time.
 
 ---
 
